@@ -19,7 +19,6 @@
 
 ## 📫 Contact Me
 - 📧 Email: kiemroyyan@mail.ugm.ac.id  
-- 🌐 LinkedIn: [link LinkedIn kamu]  
 - 📞 Instagram: [@kiemroyyan](https://instagram.com/kiemroyyan)  
 
 ---
